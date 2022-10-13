@@ -1,0 +1,2 @@
+# Ichi
+sutaaaatoo code
